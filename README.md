@@ -19,10 +19,11 @@
 ![](https://i.pinimg.com/736x/c2/c7/0a/c2c70ac2fb906835d9928a8bf154a1eb.jpg)
 ![](https://i.pinimg.com/736x/7b/57/bf/7b57bf596e09f9916440ba011450f791.jpg)
 ![](https://i.pinimg.com/736x/03/59/f0/0359f0006219ad007cbcddf81e296b5d.jpg)
+# eww ewwwww imgonnaendit
 ![](https://i.pinimg.com/736x/d3/44/40/d34440fde50f0cf641b36a00fd7ccc7e.jpg)
 ![](https://i.pinimg.com/736x/b1/c6/12/b1c6126d09dc59ddbc2b7fa5619c971b.jpg)
 ![](https://pbs.twimg.com/media/HLAxcuuX0AAdaAi?format=jpg&name=large)
-![](https://i.pinimg.com/736x/63/53/49/63534956875648b9c6d14fd296ad8b84.jpg)
 ![](https://pbs.twimg.com/media/HJkhPA_XQAoYDDr?format=jpg&name=large)
+# ^^ we should kill this guy NOW
 ![](https://64.media.tumblr.com/64493d203e457074fa9b6066b5cf28c5/851a1ef7d7001340-c9/s640x960/3edca9626ff74f1988c801a57e8d5cdbe184ce6d.gifv)
 ![](https://64.media.tumblr.com/aae30f64e8e4ddcf8ac5f8ff0815b6cd/55e83239765ee5b4-dd/s2048x3072/c3c3328103a2b15e180049d4c9dc78f2b4cb9442.pnj)
