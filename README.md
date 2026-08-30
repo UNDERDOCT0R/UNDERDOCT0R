@@ -22,6 +22,8 @@
 ![](https://i.pinimg.com/736x/86/9a/3d/869a3d2f2941764ba22169600357b10b.jpg)
 ![](https://i.pinimg.com/736x/77/3d/90/773d9003f16ab81a5d9e34f35b8b2d76.jpg)
 ![](https://i.pinimg.com/736x/8e/f0/1f/8ef01f94993d715ef03948a7a439d07a.jpg)
+![](https://i.pinimg.com/736x/1c/e7/a4/1ce7a423fe9f539952dc5952ff857963.jpg)
+# LOL who dis
 ![](https://i.pinimg.com/736x/bd/9c/c9/bd9cc9976f912649bea3e4cb8cd46b01.jpg)
 ![](https://i.pinimg.com/736x/ec/a4/fc/eca4fcf24e1ffb681fcc8ce4d922f71b.jpg)
 ![](https://i.pinimg.com/736x/2d/dc/cb/2ddccbeafefe33eeb86287f48ddf00b5.jpg)
